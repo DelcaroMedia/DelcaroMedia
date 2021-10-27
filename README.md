@@ -1,2 +1,2 @@
-👋 Hello, We are @DelcaroMedia and we care about web3, crypto, and quality web development projects. 🧠 
+👋 Hello, We are @DelcaroMedia, a DOA that cares about web3, crypto, and quality web development projects. 🧠 
 
